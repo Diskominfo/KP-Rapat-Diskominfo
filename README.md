@@ -1,2 +1,0 @@
-KP-Rapat-Diskominfo
-===================
